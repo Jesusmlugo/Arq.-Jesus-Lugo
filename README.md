@@ -1,3 +1,3 @@
-# Arq.-Jesus-Lugo
+# Arq. Jesus Lugo
 
 WEBSITE EN CONSTRUCCION...
